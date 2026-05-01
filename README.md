@@ -58,7 +58,7 @@ AI Student | Web Design Learner
 
 ## 📞 Contact
 
-- Email: your-email@example.com  
+- Email:Aqsahameed2245@gmail.com 
 - GitHub: https://github.com/AqsaAI-dev  
 
 ---
